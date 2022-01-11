@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome
 #### 10
-#### 11 Coding is great
+#### 11 Coding is amazing
 #### 12
 #### 13
 #### 14
